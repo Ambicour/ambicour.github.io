@@ -1,2 +1,0 @@
-# ambicour.github.io
-Ambicour
